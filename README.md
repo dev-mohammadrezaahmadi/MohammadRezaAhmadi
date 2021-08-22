@@ -2,7 +2,7 @@
 # Hey there, I'm Reza 🙂
 ## A Frontend developer I suppose 
 
-![](https://yamabara.com/wp-content/uploads/2021/07/IDE-BISNIS-SEDERHANA-Affiliate-Business-YAMABARA.gif)
+![](https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif)
  
  ## You can find me here:
 
